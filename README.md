@@ -1,2 +1,2 @@
 # hello-world
-Hey :) I'm Natalie.My favoirte color is blue,Ilove bake ziti 
+Hey :) I'm Natalie.My favoirte color is blue,I love bake ziti 
